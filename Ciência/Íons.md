@@ -1,0 +1,1 @@
+[Íons: o que são, classificação, formação - Brasil Escola (uol.com.br)](https://brasilescola.uol.com.br/quimica/ions.htm#:~:text=%C3%8Dons%20s%C3%A3o%20esp%C3%A9cies%20qu%C3%ADmicas%20carregadas,um%20%C3%ADon%20negativo%20chamado%20%C3%A2nion.)

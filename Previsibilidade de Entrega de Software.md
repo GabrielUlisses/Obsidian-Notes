@@ -1,0 +1,1 @@
+[Previsibilidade de entrega de software, sem a dor das estimativas (youtube.com)](https://www.youtube.com/watch?v=TTJnJiwgfcI&ab_channel=EximiaCo-Excel%C3%AAnciaTecnol%C3%B3gica)
